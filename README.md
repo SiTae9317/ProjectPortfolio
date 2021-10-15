@@ -54,3 +54,6 @@ https://www.youtube.com/watch?v=M7g__dzFjMM
 
 World of 2048 Tycoon - Main Scene
 https://www.youtube.com/watch?v=NrG6TNtjQ98
+
+아바타 컨셉 영상
+https://youtu.be/cI-cKAlij-M
