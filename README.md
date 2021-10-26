@@ -42,20 +42,20 @@ https://youtu.be/AwK32Aa57E8
 AI 디지털 휴먼 일정관리 월페이퍼 컨텐츠
 https://youtu.be/DRrFN7Dk0yU
 
-RAvatar Assistant 고객 응대 홀로그램 Demo Clip
-https://www.youtube.com/watch?v=IUv8oEsVopg
+Avatar Assistant 고객 응대 홀로그램 Demo Clip
+https://youtu.be/B60RKYnT170
 
-RAvatar Tutor Demo Clip
-https://www.youtube.com/watch?v=_b6N2_01CMs
+Avatar Tutor Demo Clip
+https://youtu.be/cSOfLxSvh6g
 
-RAvatar Tutor AR Demo Clip
-https://www.youtube.com/watch?v=0Dm9MDwyiGg
+Avatar Tutor AR Demo Clip
+https://youtu.be/QQ9d_CTQHeA
 
-RAvatar Tutor 직무 교육 Demo Clip
-https://www.youtube.com/watch?v=M7g__dzFjMM
+Avatar Tutor 직무 교육 Demo Clip
+https://youtu.be/SXMdo4A-N5I
 
 World of 2048 Tycoon - Main Scene
-https://www.youtube.com/watch?v=NrG6TNtjQ98
+https://youtu.be/FNOApEnIxk0
 
 아바타 컨셉 영상
 https://youtu.be/cI-cKAlij-M
