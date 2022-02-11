@@ -1,4 +1,4 @@
-# [KwakHeeTae_Portfolio.pptx](https://github.com/SiTae9317/ProjectPortfolio/raw/main/KwakHeeTae_Portfolio.pptx)
+# [KwakHeeTae_Portfolio.pdf](https://github.com/SiTae9317/ProjectPortfolio/raw/main/KwakHeeTae_Portfolio.pdf)
 
 ## Test Repositories
 - [RuntimeLoaderTest](https://github.com/SiTae9317/RuntimeLoaderTest)
